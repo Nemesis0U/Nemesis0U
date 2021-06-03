@@ -1,4 +1,4 @@
-[Bug Bounty Hunter]
+[Security Enthusiast & Bug Bounty Hunter]
 
 Donate me by Bitcoin: bc1qg9ss7c406wrpl6jn77exz93wa9cjkwg48wekxu
 
