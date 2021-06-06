@@ -1,4 +1,4 @@
-*Security Enthusiast & Bug Bounty Hunter*
+*Cybersecurity Enthusiast & Bug Bounty Hunter*
 
 <img src="https://user-images.githubusercontent.com/83503290/120696491-87629e80-c4a4-11eb-93ca-6fa6665a85fd.png" alt="alt text" width="50" height="50">
 
