@@ -1,6 +1,7 @@
 ## Nemesis
 
-![IMG_3353](https://user-images.githubusercontent.com/83503290/125625919-8565d546-94cb-4724-be1d-62910a82ca98.gif)
+
+![TVdmm2k](https://user-images.githubusercontent.com/83503290/141646621-3f0b59c7-ffce-41b1-b8b7-ba9817f99350.gif)
 
 
 
